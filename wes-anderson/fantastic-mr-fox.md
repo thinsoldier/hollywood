@@ -1,0 +1,3 @@
+#Fantastic Mr. Fox
+
+After 12 years of bucolic bliss, Mr. Fox (George Clooney) breaks a promise to his wife (Meryl Streep) and raids the farms of their human neighbors, Boggis, Bunce and Bean. Giving in to his animal instincts endangers not only his marriage but also the lives of his family and their animal friends. When the farmers force Mr. Fox and company deep underground, he has to resort to his natural craftiness to rise above the opposition.
